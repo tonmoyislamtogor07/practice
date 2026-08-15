@@ -1,1 +1,1 @@
-# practice makes a man perfect. so practice more. you know we are not same bro
+# practice makes a man perfect. so practice more. you know we are not same bro. so chill bro

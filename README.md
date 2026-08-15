@@ -1,1 +1,1 @@
-# practice makes a man perfect
+# practice makes a man perfect. so practice more
